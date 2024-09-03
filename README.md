@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on 
 - 📫 How to reach me , 01129261571
 - 😄 Pronouns: male
-- ⚡ Fun fact: cool guy
+- ⚡ Fun fact: olivia rodrigo's biggest fan
 
 <!---
 DaN15h-DAN/DaN15h-DAN is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
